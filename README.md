@@ -1,0 +1,1 @@
+# 8-sinif-matematik-soru-bankasi-a-32
